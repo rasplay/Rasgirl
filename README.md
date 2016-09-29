@@ -13,7 +13,8 @@
   ![RAS Girl](http://i2.wp.com/www.rasplay.org/wp-content/uploads/SDAFDFS.png?resize=203%2C300)
   
   
-  
-  
+## [Ours introduce page is here](http://www.rasplay.org/?page_id=6041)
+
+ ![RAS Girl](http://i1.wp.com/www.rasplay.org/wp-content/uploads/KakaoTalk_20160617_150015248.png?resize=285%2C300)
   
   
